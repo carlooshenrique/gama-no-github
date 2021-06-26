@@ -1,0 +1,1 @@
+O curso está sendo incrível, principalmente a maneira em que são feitas as aulas. Todo contéudo explicado de maneira detalhada e com todo o cuidado possível, cada vez mais me sinto que posso conseguir uma vaga como desenvolvedor.
